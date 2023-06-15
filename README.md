@@ -1,2 +1,2 @@
 # hcoe
-hello world
+This is Himalaya college

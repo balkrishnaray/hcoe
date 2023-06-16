@@ -1,5 +1,1 @@
-# hcoe
-This is Himalaya college
-I am sitting in 4th floor.
-i study bct
-i am balkrishna ray my roll no. is 007
+This is our classes for the world's greatest student, Balkrishnaaaaaaaaaa!
